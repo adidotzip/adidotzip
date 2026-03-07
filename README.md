@@ -1,5 +1,5 @@
 # 💫 About Me:
-Some what of a developer<br>Makes things which nobody would but only for myself.
+Some what of a developer<br>Makes things which nobody would need but only for myself.
 
 
 ## 🌐 Socials:
